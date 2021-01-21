@@ -4,6 +4,6 @@
 
 👩🏻‍💻 I'm currently working on improving my backend stack, and redesigning my personal website (stay tuned👀)
 
-🔭 I have a deep love for astronomy, sports, music, law, and the outdoors!
+🔭 I have a deep love and interest for astronomy, sports, music, law, and the outdoors!
 
 📬 You can reach me at jolene.zheng@uwaterloo.ca about anything. I'd love to hear from you :)
