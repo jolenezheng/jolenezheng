@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey 👋
 
 🤓 I'm currently a 3rd year CS student at the University of Waterloo
 
